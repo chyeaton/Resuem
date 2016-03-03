@@ -1,8 +1,16 @@
 # Chy Eaton
-14330 12th Avenue NE Apt. 418M, Seattle, WA  98125 • <chy@chylawson.com> • [206.303.8650] (tel://206-303-8650)
+14330 12th Avenue NE Apt. 418M • Seattle • WA • 98125 • <chy@chylawson.com> • 206.303.8650  
 
-## Skills
-Diligent self-starter who utilizes critical thinking and time-management skills to be an efficient 
+## Summary of Qualifications
+Diligent self-starter who utilizes critical thinking and time-management skills. Dependable team player who's always looking to learn, improve and encourage team members.  
+
+**Application Expertise:**  
+• Windows Operating Systems • Adobe Acrobat • ACT! • QuickBooks Pro • eCopy  
+• Microsoft Office Suites 2013 and earlier • Microsoft Small Business Server  
+• CT Summation iBlaze • Timeslips by Sage • Aderant Total Office  
+• TABS3 Legal Billing and Time Tracking Software • Serengeti • CT Tymetrix  
+• Legal Precision • AIA Contract Documents • Concordance • Visibillity  
+• TimeMatters • TrialDirector  
 
 ## Professional Experience
 ###Paralegal Supervisor at [Campbell Campbell Edwards & Conroy] (http://www.campbell-trial-lawyers.com/)
@@ -34,6 +42,7 @@ Diligent self-starter who utilizes critical thinking and time-management skills 
 
 ###Paralegal at Tax Debt Solutions, Inc.
 *August 2005 through March 2007*   
+*No website available*  
 • Assist with case preparation: review and evaluate information, perform investigations.  
 • Prepare forms and declarations, organize case files and maintain database; record ongoing case proceedings.  
 • Coordinate meetings, schedules, correspondence and incoming requests for executives; work with attorneys to docket events, discuss meeting agendas and follow-through for client situations and cases.  
